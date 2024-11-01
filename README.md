@@ -6,7 +6,7 @@
 
 **Bricks Kingdom MOD APK** adalah game Android yang menggabungkan **puzzle brick-breaking dengan pembangunan kota kerajaan** ala zaman abad pertengahan. Game ini cocok untuk penggemar strategi dan puzzle yang ingin merasakan tantangan membangun dan memperluas kerajaan sambil menghadapi teka-teki brick yang seru.
 
->Unduh Disini: https://modhello.com
+>Unduh Disini: https://modhello.com/bricks-kingdom/
 
 Dengan versi MOD APK yang menawarkan **unlimited resources**, pemain dapat bermain tanpa batas, membangun lebih cepat, dan merasakan pengalaman bermain game strategi abad pertengahan tanpa hambatan. Campuran dari **taktik puzzle, pengumpulan sumber daya, dan ekspansi kerajaan** menjadikannya sangat menarik untuk dimainkan dalam waktu yang lama.
 
